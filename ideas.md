@@ -12,4 +12,5 @@ Can't stop 'cause we're so high
 Let's do this one more time, oh
 
 Esta cancion es muy energetica y divertida, es muy motivadora 
-esta cancion es mi favorita
+
+Escuche esta cancion por primera vez en youtube luego de descubrir a Justin Bieber, fue la mejor epoca de la musica pop gracias a ellos 
