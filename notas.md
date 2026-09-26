@@ -3,5 +3,5 @@ contexto: en un garrafon pusieron yoyos minis y te pedian que anotaras un aproxi
  
 No gane ya que yo anote que habian 250 yoyos y eran 484, me hicieron falta un monton de yoyos para ganar la alexa. La queria ganar porque la mia se quemo con un rayo
 
-El examen de algebra me puso triste este fin de semana 
+El examen de algebra me puso triste este fin de semana y ya no podre disfrutar igual mi fin de semana
 Me siento muy frustrada porque estudie mucho y aun asi me fallaron cosas las cuales si habia estudiado
