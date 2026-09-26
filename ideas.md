@@ -22,3 +22,4 @@ We gonna party like it's 3012 tonight
 I wanna show you all the finer things in life
 So just forget about the world, we young tonight
 I'm coming for ya, I'm coming for ya
+Justin Bieber tiene un hijo y su esposa es Hailey Bieber 
